@@ -1,1 +1,1 @@
-Ninsky.com
+Ninsky.com .
